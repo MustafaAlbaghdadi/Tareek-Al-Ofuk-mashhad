@@ -1,1 +1,0 @@
-# Tareek-Al-Ofuk-mashhad
